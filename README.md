@@ -1,2 +1,2 @@
-## Hi there, I'm Diya 👋
+## Hi, I'm Diya 👋
 🤖 Mechatronics Engineering Student @uWaterloo
